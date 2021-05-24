@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Trisha-141
+- 👋 Hi, I’m Trisha Naskar.
 - 👀 I’m interested in coding and learning new languages.
 - 🌱 I’m currently studying Btech CSE (2nd year)
 - 💞️ I’m looking to collaborate on ...
